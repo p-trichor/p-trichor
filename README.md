@@ -1,5 +1,5 @@
-# # Welcome ghouls and ghoulettes to my page, enjoy your stay !1!
-## ⋅────────────────────────⊱༺-♰-༻⊰────────────────────────⋅
+## <p align="center">‎ Welcome ghouls and ghoulettes to my page, enjoy your stay !1!
+## <p align="center">‎ ⋅───────────────────⊱༺-♰-༻⊰───────────────────⋅
 
 <!--
 Source - https://stackoverflow.com/a
@@ -17,5 +17,5 @@ Retrieved 2026-01-03, License - CC BY-SA 3.0
 
 ###### <p align="center">  Keep in mind I might be a bit akward since I can get really anxious when interacting with people I don't know online. </p>
 
-## ⋅────────────────────────⊱༺-♰-༻⊰────────────────────────⋅
+## <p align="center">‎ ⋅───────────────────⊱༺-♰-༻⊰───────────────────⋅
 
