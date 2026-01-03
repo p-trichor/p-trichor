@@ -6,7 +6,7 @@ Posted by Fritzip, modified by community. See post 'Timeline' for change history
 Retrieved 2026-01-03, License - CC BY-SA 3.0
 -->
 
-<a href="url"><img src="https://github.com/p-trichor/p-trichor/blob/main/redarchyes.jpg" align="left" height="300" width="1280" ></a>
+<a href="url"><img src="https://github.com/p-trichor/p-trichor/blob/main/redarchyes.jpg" align="left" height="200" width="1280" ></a>
 
 
 
