@@ -1,6 +1,7 @@
 # # Welcome ghouls and ghoulettes to my page, enjoy your stay !1!
 
-<img width="1280" height="427" alt="image" src="https://github.com/user-attachments/assets/882cbaaa-5985-4dd5-bc84-a547de8fb6b3" />
+<img width="1280" height="427" alt="image" src=(https://github.com/user-attachments/assets/64f5034b-591b-48ed-bc43-4da9268ddc1d)>
+
 
 ###### banner by @/dimented_goose
 #### ᯓ★ My name is Elias, otherwise Eliasz and I'll be your host for this evening¡¡
