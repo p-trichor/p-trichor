@@ -1,6 +1,7 @@
 # # Welcome ghouls and ghoulettes to my page, enjoy your stay !1!
 
-![redarchyes](https://github.com/user-attachments/assets/14dbf2d7-1ab0-4390-8782-f7af3db19fb4)
+![32bc7e7a2a00a83bc7ad2260f7770a64](https://github.com/user-attachments/assets/93f8022a-b4a3-4371-a860-0213baf06f11)
+
 
 
 
