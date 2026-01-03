@@ -1,6 +1,13 @@
 # # Welcome ghouls and ghoulettes to my page, enjoy your stay !1!
 
-![32bc7e7a2a00a83bc7ad2260f7770a64](https://github.com/user-attachments/assets/93f8022a-b4a3-4371-a860-0213baf06f11)
+<!--
+Source - https://stackoverflow.com/a
+Posted by Fritzip, modified by community. See post 'Timeline' for change history
+Retrieved 2026-01-03, License - CC BY-SA 3.0
+-->
+
+<a href="url"><img src="![redarchyes](https://github.com/user-attachments/assets/41959f6f-381a-45dc-a6f9-a5787cefa74d)" align="left" height="340" width="1280" ></a>
+
 
 
 
