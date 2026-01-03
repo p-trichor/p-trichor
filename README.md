@@ -1,4 +1,4 @@
-# ⋆˙⟡ Hiya!! Welcome to this page, glad to have you here 🍃
+# 🫀 Welcome ghouls to this page !!!
 
 <img width="1280" height="427" alt="image" src="https://github.com/user-attachments/assets/882cbaaa-5985-4dd5-bc84-a547de8fb6b3" />
 
@@ -9,4 +9,4 @@
 #### ‎ ‎ ‎ ‎ ᯓ★  DNI lists + boundaries are in the rentry, and the prns page is self-explanatory 
 ## ‎ ‎ 
 
-## ⋅───────────────────────⊱༺-♰-༻⊰───────────────────────⋅
+## ⋅─────────────────────⊱༺-♰-༻⊰─────────────────────⋅
