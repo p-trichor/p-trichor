@@ -1,4 +1,4 @@
-## <p align="center">‎ Welcome ghouls and mansters to my page, enjoy your stay !1!
+## <p align="center">‎ Welcome ghouls to my page, enjoy your stay !1!
 ## <p align="center">‎ ⋅───────────────────⊱༺-♰-༻⊰───────────────────⋅
 
 <!--
