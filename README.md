@@ -12,6 +12,7 @@ Retrieved 2026-01-03, License - CC BY-SA 3.0
 
 <p align="center"> I go by <strong> Eliasz </strong> preferably! Though you call me by any character I like, have my profile as, or I'm cosplaying on games (i.e. roblox, pt & mc). !!11!! </p>
 <p align="center"> ‎ ‎ ‎ ‎ ‎   ᯓ★  My current interests !! ;; Tomodachi Life:LTD, 8:11, TSHD, SCP, Hetalia, MM2012, DnD etc. etc. ,, !! </p>
+<p align="center"> ‎ ‎ ‎ ‎ ‎   ᯓ★  Favourite Characters rn !!! Yuta Okkotsu, Yoshiki Tsujinaka & Dakota Drevis !! </p>
 <p align="center">  ‎ ‎ᯓ★ <strong> Unless I'm on a dni </strong>, dm/ping me freely! </p>
 <p align="center">‎ ‎     ‎ ‎ ᯓ★  DNI lists + boundaries are in the rentry, and the prns page is self-explanatory </p>
 
